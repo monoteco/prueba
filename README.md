@@ -1,3 +1,4 @@
 # prueba
 prueba para aplicar ejemplos del turorial
-hi, Mi name is German. Funny isn`t it?
+ky quiero añadir nuevos comentarios
+o sea más tela que cortar
